@@ -1,1 +1,3 @@
-# infoig
+# info instagram
+
+*jangan manja kontol
